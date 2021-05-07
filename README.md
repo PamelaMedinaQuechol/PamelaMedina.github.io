@@ -1,2 +1,0 @@
-# PamelaMedina.github.io
-Blog
